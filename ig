@@ -1,1 +1,0 @@
-mynam es insherah
